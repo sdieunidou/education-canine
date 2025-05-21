@@ -1,6 +1,6 @@
 # Sommaire
 
-Education canine
+Education canine – Du Chiot à l'Adulte
 
 ## 1. PRÉ-ADOPTION
 
